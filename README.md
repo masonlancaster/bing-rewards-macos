@@ -1,0 +1,1 @@
+# bing-rewards-macos
